@@ -218,4 +218,4 @@ Comodo IceDragon is the full free version, offering all features and updates inc
 Don't miss out on the opportunity to elevate your online security and browsing speed. **Download Comodo IceDragon FREE today!**
 
 ---
-**Last updated:** 2026-09-20 19:06:29 UTC
+**Last updated:** 2026-09-20 21:56:52 UTC
